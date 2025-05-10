@@ -1,0 +1,1 @@
+# trucchi-Disney-Solitaire-gratis
